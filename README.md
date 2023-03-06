@@ -1,4 +1,4 @@
-
+![logo](https://github.com/vivekchouksey123/vivekchouksey123/blob/main/vivek%20choukse.png)
 <h1 align="center">Hi 👋, I'm Vivek Choukse</h1>
 <h3 align="center">A passionate Frontend Developer from India</h3>
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/2uyENRmiUt0AAAAC/coding.gif">
