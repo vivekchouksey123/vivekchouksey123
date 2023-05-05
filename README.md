@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **vivekchoukse51@gmail.com**
 
-- 📄 Know about my experiences Resume Link: [https://drive.google.com/file/d/1ZQ-QK5KEs4dqFqhYrkApILJjcWb51kA_/view?usp=drivesdk](https://drive.google.com/file/d/1ZQ-QK5KEs4dqFqhYrkApILJjcWb51kA_/view?usp=drivesdk)
+- 📄 Know about my experiences Resume Link: [https://drive.google.com/file/d/1Zxw002YlznHku7iOC8eSgCj6iV6WxZ9w/view?usp=share_link](https://drive.google.com/file/d/1ZQ-QK5KEs4dqFqhYrkApILJjcWb51kA_/view?usp=drivesdk)
 
 - ⚡ Fun fact **I like to talk to new people😇🤜**
 
